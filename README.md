@@ -1,4 +1,4 @@
-# Lefteris, what are we gonna put in here?
+# Lefteri, what are we gonna put in here?
 
 :-)
 
